@@ -1,0 +1,1 @@
+# NordGard-terms-and-privacy
